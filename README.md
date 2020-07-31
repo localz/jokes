@@ -18,3 +18,5 @@
 * As a doctor, I never make a joke about an unvaccinated baby. But let me give it a shot.
 
 * My friend David lost his ID. Now he's just Dav.
+
+* Son: Can i watch the TV, dad ? Dad: Yes son but don't turn it on.
