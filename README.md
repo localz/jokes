@@ -18,3 +18,6 @@
 * My friend David lost his ID. Now he's just Dav.
 
 * Son: Can i watch the TV, dad ? Dad: Yes son but don't turn it on.
+
+* The secret service isn't allowed to yell "Get down!" anymore when the president is about to be attacked.
+Now they have to yell "Donald, duck!"
