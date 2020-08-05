@@ -21,3 +21,5 @@
 
 * The secret service isn't allowed to yell "Get down!" anymore when the president is about to be attacked.
 Now they have to yell "Donald, duck!"
+
+* Apparently a keyboard never rests. Only because it has two shifts.
